@@ -18,8 +18,7 @@
 
 Hi, I'm Luis 🙌, an Assistant Professor at the School of Education and Psychology at the University of Navarra. I´m also an MD and hold a PhD in Cognitive Neuroscience for doing research on the age-related differences in visual perception and cognition and their role in virtual car driving using functional neuroimaging (fMRI).❤✌
 
-
-
+This page contains past and present projects. Don´t expect much as I´m still learning!
 
 **Things I´m interested in:**
 
